@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @shivani-k1203
 - 👀 I’m interested in  learning new things which i want to create the something new
-- 🌱 I’m currently learning web designing, canva,photopia,tableau,power bi, Turn on interactive dashboard ,data anaylitics workshop in jobaaj
+- 🌱 I’m currently learning web designing, graphic design,content writing, data analytics projects i did
 - 💞️ I’m looking to collaborate with the all my friends
 - 📫 How to reach me ...shivani-k1203 this is my guthub name
 
